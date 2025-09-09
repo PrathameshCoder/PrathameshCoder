@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **prathameshgongle@gmail.com**
 
-- 📄 Know about my experiences [https://www.dropbox.com/scl/fi/p7lu0o83beqzoav6tbwc5/Prathamesh_Gongle_CV.pdf?rlkey=adwk4kynda9tseqew0mxpk22p&st=qpdiz9nk&dl=0](https://www.dropbox.com/scl/fi/p7lu0o83beqzoav6tbwc5/Prathamesh_Gongle_CV.pdf?rlkey=adwk4kynda9tseqew0mxpk22p&st=qpdiz9nk&dl=0)
+- 📄 Know about my experiences [[https://www.dropbox.com/scl/fi/p7lu0o83beqzoav6tbwc5/Prathamesh_Gongle_CV.pdf?rlkey=adwk4kynda9tseqew0mxpk22p&st=qpdiz9nk&dl=0]](https://www.dropbox.com/scl/fi/p7lu0o83beqzoav6tbwc5/Prathamesh_Gongle_CV.pdf?rlkey=adwk4kynda9tseqew0mxpk22p&st=qpdiz9nk&dl=0)
 
 - ⚡ Fun fact **I design code by day and album covers by night — yes, I also release my own music!**
 
